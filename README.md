@@ -1,0 +1,1 @@
+# typicalname0.github.io
